@@ -1,4 +1,7 @@
 ![2_google-pixel5-justblack-portrait](https://github.com/Mudassar41/football_app/assets/83106725/74341829-ac4b-4905-83f2-d18d94f760fe)
+![4_google-pixel5-justblack-portrait](https://github.com/Mudassar41/football_app/assets/83106725/432fb4a7-4bb5-4960-8b67-b6a441932bb5)
+![1_google-pixel5-justblack-portrait](https://github.com/Mudassar41/football_app/assets/83106725/2a6f3677-e3f0-4ca4-b4db-03f0e7008771)
+
 
 # football_app
 
